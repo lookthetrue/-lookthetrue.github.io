@@ -1,2 +1,0 @@
-# -lookthetrue.github.io
-Myself
